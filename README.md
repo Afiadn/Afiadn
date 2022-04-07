@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Afiadn
 - 👀 I’m interested in personal development, relation, and law
 - 🌱 I’m currently learning law
-- 💞️ I’m looking to collaborate on community or leadership program
+- 📚I’m looking to collaborate on community or leadership program
 - 📫 How to reach me , please contact me trough DM or email : afiadani@student.ub.ac.id
 
 <!---
